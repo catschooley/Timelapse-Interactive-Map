@@ -1,4 +1,4 @@
-# Timelapse of Oil and Gas from the 1970s until now
+# Utah's Oil and Gas: A Journey through Time
 
 
 
